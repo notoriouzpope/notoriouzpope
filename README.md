@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @notoriouzpope
+- 👀 I’m interested in learning hacking
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate with all ...
+- 📫 How to reach me I.G: @_saintmiles
